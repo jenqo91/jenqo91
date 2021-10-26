@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Jenqo
+- </> FiveM vRP Scripter
+- ⏩ Currently scripter for: discord.gg/simplygods 
+- 📫 For collaborations and inquiries discord: Jenqo.#8353
